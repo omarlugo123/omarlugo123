@@ -1,0 +1,4 @@
+-  Hi, I’m Omar Lugo
+-  Student at the University of Miami
+-  About to become a Mortgage Loan Originato
+-  Will revolutionize several industries in order to improve consumer confidence in the US Market
